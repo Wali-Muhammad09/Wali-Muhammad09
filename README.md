@@ -2,7 +2,7 @@
 - 👀 I’m interested in ...?
 - 🌱 I’m currently learning ... Python Programming Language
 - 💞️ I’m looking to collaborate on ... ?
-- 📫 How to reach me ...?
+- 📫 How to reach me by email: walimps6112@gmail.com or discord:notwxli
 - 😄 Pronouns: ...?
 - ⚡ Fun fact: ...?
 
